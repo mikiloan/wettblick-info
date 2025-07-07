@@ -6,9 +6,9 @@ Wir stellen Ihnen aktuelle Quoten, Prognosen und spannende Inhalte rund um den F
 👉 Hier erfahren Sie alles zum Thema [fussball heute](https://wettblick.de/) mit den neuesten Spielen und Statistiken.
 
 Besuchen Sie unsere Website für noch mehr Informationen und aktuelle Bundesliga Angebote:  
-[https://wettblick.de](https://wettblick.de)
+[bundesliga live](https://wettblick.de/bundesliga)
 
 ---
 
 **Kontakt**  
-E-Mail: kontakt@wettblick.de  
+E-Mail: info@wettblick.de  
